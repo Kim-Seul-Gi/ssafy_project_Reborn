@@ -69,4 +69,4 @@
 
 ### # 프로젝트 결과
 
-https://www.youtube.com/watch?v=ioNE9TOcy_g&t=9s
+https://youtu.be/ioNE9TOcy_g
